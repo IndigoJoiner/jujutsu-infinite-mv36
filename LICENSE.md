@@ -1,4 +1,4 @@
-#  
+#  rare jujutsu infinite Scripts is the best jujutsu infinite Script, featuring anti-ban and one-hit kill. Safe and powerful for all your needs.
 
 
 
